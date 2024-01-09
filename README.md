@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shivaniirkar-1997&label=Profile%20views&color=0e75b6&style=flat" alt="shivaniirkar-1997" /> </p>
 
-- 📫 How to reach me :--&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 📧 shivaniirkar1997@gmail.com
+- 📫 How to reach me :--📧 shivaniirkar1997@gmail.com
 
 
 -  <a href="https://drive.google.com/file/d/1RBkvbRVzIFAl-7B8BAGbjtrb2Qbixo08/view?usp=sharing](https://drive.google.com/file/d/1RBkvbRVzIFAl-7B8BAGbjtrb2Qbixo08/view?usp=sharing">📄 Know about my experiences 📖</a>
