@@ -8,7 +8,7 @@
 - 📫 How to reach me :--📧 shivaniirkar1997@gmail.com
 
 
--  <a href="https://drive.google.com/file/d/1RBkvbRVzIFAl-7B8BAGbjtrb2Qbixo08/view?usp=sharing](https://drive.google.com/file/d/1RBkvbRVzIFAl-7B8BAGbjtrb2Qbixo08/view?usp=sharing">📄 Know about my experiences 📖</a>
+-  <a href="https://drive.google.com/drive/folders/1fcUMEw88Hnd22h4tfLhRlQJXgS_ajFn6">📄 Know about my experiences 📖</a>
 
 - ⚡ Fun fact, I am funny 👼
 
